@@ -1,1 +1,1 @@
-# Hutter-Prize
+# Hutter Prize
